@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-![](https://c.tenor.com/38l5OsYy2TsAAAAC/elmo-flaming.gif)
+![](https://c.tenor.com/4LvAD8hD5tcAAAAM/charlie-day.gif)
 <!--
 **ANZ504/ANZ504** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
